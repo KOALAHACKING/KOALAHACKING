@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KOALAHACKING
 - 👀 I’m interested in hacking 
-- 🌱 I’m currently learning English korean laugh
+- 🌱 I’m currently learning English korean
 - 💞️ I’m looking to collaborate on hacking Deepweb
 - 📫 I'm koalahacking☺️😊
 
